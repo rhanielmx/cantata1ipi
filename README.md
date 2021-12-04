@@ -2,8 +2,8 @@
 Repositório com as Informações para a Cantada 1º Igreja Presbiteriana de Itapipoca
 
 ## Ensaios:
-**Sexta:** 19h30
-**Sábado:** 15h00
+**Sexta:** 19h30\
+**Sábado:** 15h00\
 
 ## Links para as Playlists:
 [Playlist no Spotify](https://open.spotify.com/playlist/5U27tWMWQcE4O1JtdCOkee?si=C1QQQ0InSpG5qb_7EfjvyA&utm_source=copy-link)
