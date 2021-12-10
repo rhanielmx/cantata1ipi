@@ -8,6 +8,7 @@ Repositório com as Informações para a Cantada 1º Igreja Presbiteriana de Ita
 ## Links para as Playlists:
 [Playlist no Spotify](https://open.spotify.com/playlist/5U27tWMWQcE4O1JtdCOkee?si=C1QQQ0InSpG5qb_7EfjvyA&utm_source=copy-link)\
 [Playlist no Youtube](https://www.youtube.com/playlist?list=PLkIWaBtppqJiuo2hnw31z43Q1CP083AZP)\
+[Playlist da Família](https://youtube.com/playlist?list=PLkIWaBtppqJijQP-lyFGRROmO5YSbdu8I)\
 [Link dos Ensaios](https://www.youtube.com/playlist?list=PLkIWaBtppqJiueXI8rI6CwnbOyUG-SYsK)
 
 ## Links para as Letras
