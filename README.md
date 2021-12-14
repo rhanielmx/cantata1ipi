@@ -12,9 +12,9 @@ Repositório com as Informações para a Cantada 1º Igreja Presbiteriana de Ita
 [Link dos Ensaios](https://www.youtube.com/playlist?list=PLkIWaBtppqJiueXI8rI6CwnbOyUG-SYsK)
 
 ## Links para as Letras
-[Louvores Natal (1 Coluna)](https://drive.google.com/uc?export=download&id=1dtZOTvQzL__RxyaU45jv4O_HrmcooUC3)\
-[Louvores Natal (Fonte Maior)](https://drive.google.com/uc?export=download&id=1dtTfwyuf5n7PA-1EbW6Y6H2MLJuA2wqr)\
-[Louvores Natal (2 Colunas)](https://drive.google.com/uc?export=download&id=1dtA3YYAAUeYZyrQs7r53z9MJ3qtO6-7m)
+[Louvores Natal (Padrão)](https://drive.google.com/uc?export=download&id=1FPBRKmvrOALHSl7e-KUHallfwqP2wf56)\
+[Louvores Natal (Fonte Maior)](https://drive.google.com/uc?export=download&id=1x3rjSd9PMSxFBs2poFGaguxEKc0SEWtT)\
+[Louvores Natal (Divisão de Voz)](https://drive.google.com/uc?export=download&id=1yklqMosV6iuNyjz48fx5uwHvOd_7wJY3)
 
 ## Roupas:
 Blusa e Calça Pretas
